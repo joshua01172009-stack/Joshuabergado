@@ -1,2 +1,0 @@
-# Joshuabergado
-Elfilibusterismo
